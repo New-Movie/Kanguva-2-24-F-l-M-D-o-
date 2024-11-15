@@ -23,6 +23,9 @@ A movie which lost sight of its intention. No matter how good the cinematography
 I wish they had focused on having a proper story also. This is not a good direction that our movies are heading towards... Violence...aggression.. revenge.. how is that enjoyable.
 There's no relief between the violent scenes. Too much screaming, graphic violence. This movie is not a pleasant watch for sure.
 
+![Kanguva (2𝟶24) F𝚞l𝚕 M𝚘𝚟𝚒𝚎 Download](https://github.com/user-attachments/assets/27c05334-d898-4c1e-ba78-a76b0c8c8dee)
+
+
 Kanguva 𝚛𝚎𝚕𝚎𝚊𝚜𝚎 𝚍𝚊𝚝𝚎
 
 Kanguva 𝚛𝚎𝚟𝚒𝚎𝚠
